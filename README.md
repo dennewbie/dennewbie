@@ -1,1 +1,1 @@
-## Hi there! I'm [Denny](https://www.linkedin.com/in/denny-caruso/) 👋🏻 
+## Hi there! I'm [Denny Caruso] (https://www.linkedin.com/in/denny-caruso/) 👋🏻 
